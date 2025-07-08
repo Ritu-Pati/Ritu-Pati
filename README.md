@@ -29,7 +29,7 @@
 ## 📫 Let's Connect!
 
 - 💼 LinkedIn: [Your LinkedIn link here]
-- 📧 Email: [ritupatil437@gmail.com]
+- 📧 Email: ritupatil437@gmail.com
 
 ---
 
